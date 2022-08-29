@@ -1,1 +1,1 @@
-# SocratesNet.github.io
+# SocratesClub.github.io
